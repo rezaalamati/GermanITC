@@ -1,0 +1,4 @@
+GermanITC
+=========
+
+GermanITC: The german ITC settled its business in Germany in the year 1990 and since then has focused successfully on worldwide international trading and consulting.   Would you like to have a partner at your side to initiate your business in foreign countries? Are you looking for support on site for trade, production and sales, provided by skilled Engineers, Project Managers and Business Economists?  As a team of experienced and highly qualified partners embedded in a network of companies and institutions, we accompany and assist you along every step of the value chain: from purchase to concept and planning, from initiation, production optimization to marketing and sales. 
